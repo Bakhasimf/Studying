@@ -1,1 +1,1 @@
-This is directiry to Studying 
+It is studying 
